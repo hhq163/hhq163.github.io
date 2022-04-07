@@ -1,3 +1,3 @@
 readme
 
-hq258.cc
+hhq.cool
